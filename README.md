@@ -1,0 +1,2 @@
+# JC-savarankiskasdarbas
+# JC-savarankiskasdarbas
